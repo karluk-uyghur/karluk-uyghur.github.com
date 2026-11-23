@@ -1,1 +1,0 @@
-# karluk-uyghur.github.com
